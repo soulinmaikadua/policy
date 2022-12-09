@@ -1,3 +1,5 @@
+#PRAVACY POLICY
+
 What Is a Policy?
 A policy provides guidelines and overall direction for an organization. Policies offer structure for consistency, and also ensure compliance with organizational values and goals as well as regulations and standards. Policies are generally set by upper management. A policy document should describe what the policy does and why it is necessary. It should also explain which individuals, roles, or departments are responsible for writing, reviewing, implementing, and managing the policy.
 
